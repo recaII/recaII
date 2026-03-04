@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤ ㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsuguharu"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsuguharu&label=%E3%85%A4%F0%96%A5%94%E3%85%A4&labelColor=%23191a14&countColor=%23bdc66b&style=flat&labelStyle=lower" /></a>
+ㅤㅤㅤㅤㅤ  ㅤㅤㅤ<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fsuguharu"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsuguharu&label=%E3%85%A4%F0%96%A5%94%E3%85%A4&labelColor=%23191a14&countColor=%23bdc66b&style=flat&labelStyle=lower" /></a>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316r46crzairjnftq2rra4wmcsjq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=191a14&interchange=false&profanity=false&bar_color=b5be5d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
