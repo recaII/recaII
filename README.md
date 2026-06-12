@@ -6,6 +6,6 @@
 
 ![   ](https://files.catbox.moe/pc0x0t.webp)
 
-iM FLEXING THIS THING HELLO PONY TOWNERS
+iM FLEXING THIS THING HELLO PONY TOWNERS I DREW THAT NEZOSHOKI PUT MY ART AS HIS BANNER THANK U ALL
 
 [matching rentry](https://rentry.co/voidpetal)  ㅤ [atabook](https://snipe.atabook.org)
